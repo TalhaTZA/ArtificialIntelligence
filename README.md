@@ -1,0 +1,1 @@
+Artificial Intelligence practice and small projects
